@@ -1,3 +1,5 @@
+# Thim's Live Wishlist
+
 ## Sony WH-1000MX3
 ![Sony WH-1000MX](https://www.sony.se/image/eb0062b3db03748efc7f5ca3fd82ccc5?fmt=pjpeg&bgcolor=FFFFFF&bgc=FFFFFF&wid=2515&hei=1320)
 Hörlurar till fritid och framförallt jobbet. Många kollegar har liknande brusreducerande hörlurar för att lättare fokusera på sin kod när det blir högljud miljö på arbetsplatsen.
