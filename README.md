@@ -37,6 +37,7 @@ Jag skulle vilja ha en till vardagskostym som jag kan ha till jobbet eller på l
 ------
 
 ## Badrumsskåp
+![Lillången](https://www.ikea.com/se/sv/images/products/lillangen-mirror-cabinet-1-door-1-end-unit__0640567_PE699917_S5.JPG?f=xl)
 Jag skulle gärna vilja ha ett större badrumsskåp då mitt lilla inte har plats för så mycket. Tanken är ett billigare badrummskåp med spegel från IKEA.
 #### Länk till exempel
 [Lillången Spegelskåp](https://www.ikea.com/se/sv/p/lillangen-spegelskap-1-doerr-1-avsluthylla-vit-gra-s49250511/)
