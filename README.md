@@ -14,6 +14,8 @@ Hörlurar till fritid och framförallt jobbet. Många kollegar har liknande brus
 ## Jeans (Tiger Pistolero)
 ![Tiger Pistolero](https://assets.ellosgroup.com/i/ellos/sth_1524460-01_De_01?%24sg%24&%24sd%24&w=1600)
 Modellen av mina favoritjeans från Tiger Jeans. De finns bland annat på Åhlens city i Stockholm.
+#### Länk till produkten för prisinformation
+[Tiger Jeans Pistolero](https://www.tigerofsweden.com/se/search/?q=pistolero)
 
 ------
 
@@ -36,3 +38,5 @@ Jag skulle vilja ha en till vardagskostym som jag kan ha till jobbet eller på l
 
 ## Badrumsskåp
 Jag skulle gärna vilja ha ett större badrumsskåp då mitt lilla inte har plats för så mycket. Tanken är ett billigare badrummskåp med spegel från IKEA.
+#### Länk till exempel
+[Lillången Spegelskåp](https://www.ikea.com/se/sv/p/lillangen-spegelskap-1-doerr-1-avsluthylla-vit-gra-s49250511/)
