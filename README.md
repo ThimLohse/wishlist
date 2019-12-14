@@ -1,13 +1,10 @@
-## Welcome to Thim's wishlist
-
-
 ## Sony WH-1000MX3
 ![Sony WH-1000MX](https://www.sony.se/image/eb0062b3db03748efc7f5ca3fd82ccc5?fmt=pjpeg&bgcolor=FFFFFF&bgc=FFFFFF&wid=2515&hei=1320)
 Hörlurar till fritid och framförallt jobbet. Många kollegar har liknande brusreducerande hörlurar för att lättare fokusera på sin kod när det blir högljud miljö på arbetsplatsen.
 #### Länk till recension av produkten
-[Bäst i test 2019](https://m3.idg.se/2.1022/1.610091/test-brusreducerande-horlurar/sida/9/sony-wh1000xm3)
+* [Bäst i test 2019](https://m3.idg.se/2.1022/1.610091/test-brusreducerande-horlurar/sida/9/sony-wh1000xm3)
 #### Länk till prisjakt för produkten
-[Länk till prisjakt för produkten](https://www.prisjakt.nu/produkt.php?q=Sony+WH-1000XM3&p=4912200)
+* [Länk till prisjakt för produkten](https://www.prisjakt.nu/produkt.php?q=Sony+WH-1000XM3&p=4912200)
 
 ------
 
@@ -15,7 +12,7 @@ Hörlurar till fritid och framförallt jobbet. Många kollegar har liknande brus
 ![Tiger Pistolero](https://assets.ellosgroup.com/i/ellos/sth_1524460-01_De_01?%24sg%24&%24sd%24&w=1600)
 Modellen av mina favoritjeans från Tiger Jeans. De finns bland annat på Åhlens city i Stockholm.
 #### Länk till produkten för prisinformation
-[Tiger Jeans Pistolero](https://www.tigerofsweden.com/se/search/?q=pistolero)
+* [Tiger Jeans Pistolero](https://www.tigerofsweden.com/se/search/?q=pistolero)
 
 ------
 
@@ -32,7 +29,7 @@ Derby eller Brouge skor i svart. Bra allround, everyday sko som passar till det 
 ![Kostym](https://lp2.hm.com/hmgoepprod?set=source[/48/5a/485a38279c51527a90b966a1e6d4e589be6ff0ef.jpg],origin[dam],category[men_blazerssuits_blazers],type[LOOKBOOK],res[m],hmver[1]&call=url[file:/product/main])
 Jag skulle vilja ha en till vardagskostym som jag kan ha till jobbet eller på lite mer informella festliga tillfällen. Kanske samma modell som jag redan har från H&M fast i annan mönsterdesign.
 #### Länk till H&M för prisexempel
-[Exempel på kostym](https://www2.hm.com/sv_se/productpage.0789400001.html)
+* [Exempel på kostym](https://www2.hm.com/sv_se/productpage.0789400001.html)
 
 ------
 
