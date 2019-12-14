@@ -1,10 +1,9 @@
 ## Sony WH-1000MX3
 ![Sony WH-1000MX](https://www.sony.se/image/eb0062b3db03748efc7f5ca3fd82ccc5?fmt=pjpeg&bgcolor=FFFFFF&bgc=FFFFFF&wid=2515&hei=1320)
 Hörlurar till fritid och framförallt jobbet. Många kollegar har liknande brusreducerande hörlurar för att lättare fokusera på sin kod när det blir högljud miljö på arbetsplatsen.
-#### Länk till recension av produkten
-* [Bäst i test 2019](https://m3.idg.se/2.1022/1.610091/test-brusreducerande-horlurar/sida/9/sony-wh1000xm3)
-#### Länk till prisjakt för produkten
-* [Länk till prisjakt för produkten](https://www.prisjakt.nu/produkt.php?q=Sony+WH-1000XM3&p=4912200)
+#### Länkar till produkten
+* [Bäst i test 2019 recension](https://m3.idg.se/2.1022/1.610091/test-brusreducerande-horlurar/sida/9/sony-wh1000xm3)
+* [Länk till prisjakts prisinformation för produkten](https://www.prisjakt.nu/produkt.php?q=Sony+WH-1000XM3&p=4912200)
 
 ------
 
